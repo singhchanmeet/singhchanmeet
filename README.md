@@ -31,5 +31,5 @@
 
 </div>
 
-### <b> Socials </b>
-https://linktr.ee/chanmeetsingh
+### <b> More About Me </b>
+https://chanmeetsingh.com
